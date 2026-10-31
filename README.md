@@ -1,1 +1,0 @@
-# temo-story-1
